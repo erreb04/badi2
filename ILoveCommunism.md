@@ -1,1 +1,1 @@
-Het communistische manifesto is gemaakt door Collin Van Der Vorst!
+Het communistische manifesto is gemaakt door  dictator Collin Van Der Vorst!
